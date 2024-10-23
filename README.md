@@ -1,1 +1,1 @@
-Follow along. 
+Working my way into the IT industry. 
